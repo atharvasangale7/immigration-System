@@ -5,4 +5,4 @@
 ![image alt](https://github.com/atharvasangale7/immigration-System/blob/272c1ad7c03090de74e91ab7cc12647b385a73de/WhatsApp%20Image%202025-06-10%20at%2012.25.08%20PM.jpeg)
 ![image alt](https://github.com/atharvasangale7/immigration-System/blob/0fb146f3d42298ba645f4d11b8a6336e6bfc8aef/WhatsApp%20Image%202025-06-10%20at%2012.33.18%20PM.jpeg)
 ![image alt](https://github.com/atharvasangale7/immigration-System/blob/ba64ba1f2693a35e6cd34b54e7293382808eb22e/WhatsApp%20Image%202025-06-10%20at%2012.33.19%20PM.jpeg)
-![image alt](https://github.com/atharvasangale7/immigration-System/blob/272c1ad7c03090de74e91ab7cc12647b385a73de/WhatsApp%20Image%202025-06-10%20at%2012.25.08%20PM.jpeg)
+![image alt](https://github.com/atharvasangale7/immigration-System/blob/3cf80a54670dd568c828e701c1cd59e14cca249b/WhatsApp%20Image%202025-06-10%20at%2012.33.20%20PM%20-%20Copy.jpeg)
